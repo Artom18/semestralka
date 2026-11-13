@@ -6,3 +6,9 @@
 https://forms.cloud.microsoft/Pages/ResponsePage.aspx?id=DQSIkWdsW0yxEjajBLZtrQAAAAAAAAAAAAN__jk0lxpURDRTWDkwS1RWTU40MExQSkpIOEZGRTJZVi4u
 
 autor:Artom Nedosnovanyi
+
+
+Dobrý den,
+téma semestrální práce máte schváleno.
+S pozdravem
+Hana vojáčková
